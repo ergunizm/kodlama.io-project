@@ -1,4 +1,4 @@
-Engin Demiroğ java kursu 2022 1.gün
+Engin Demiroğ java kursu 2022
 
 Contact me -> ergun1401@gmail.com
 
